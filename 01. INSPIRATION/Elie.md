@@ -50,6 +50,8 @@ The impact of technology on human experience/condition -> How technology influen
 
 Redefining a landscape -> Taking the same actors and changing their roles by changing their functionalities. Reusing an obsolete space or object to give it new functionalities in tune with the times.
 
+POTENTIAL RESSEARCH QUESTIONS
+
 Future Spaces : How technology redefined our habits and needs.
 
 Bridging Spaces : How the advent of the digital world forced us to rethink the ordinary.
