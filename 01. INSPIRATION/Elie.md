@@ -1,5 +1,7 @@
 THESIS
 
+1.
+
 Physical -> relating to things perceived through the senses as opposed to the mind; tangible or concrete. "the physical world".
 
 Virtual -> not physically existing as such but made by software to appear to do so.
@@ -54,6 +56,8 @@ Bridging Spaces : How the advent of the digital world forced us to rethink the o
 
 Technological convergence : How overlapping technologies gave birth to hybrid spaces.
 
+2.
+
 https://blog.richardvanhooijdonk.com/en/the-metaverse-blurring-the-lines-between-our-physical-and-virtual-worlds/
 
 https://www.goodnet.org/articles/repurposing-iconic-red-phone-booths
@@ -73,3 +77,13 @@ https://drarch.org/index.php/drarch/article/view/22
 https://medium.com/xrpractices/extending-the-reality-of-museum-eb953a2f35c9
 
 https://venturebeat.com/business/mixed-reality-and-the-art-world-an-unlikely-but-ideal-pairing/
+
+3.
+
+![phone](images/telephone-booth.jpg)
+
+![graff](images/yalo.PNG)
+
+![projo](images/projection.png)
+
+![lab](images/teamlab.jpg)
