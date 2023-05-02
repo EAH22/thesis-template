@@ -98,3 +98,15 @@ This past weekend I have been reading over thomassons.
 Found a Reddit Page that lists them (https://www.reddit.com/r/Thomassons/). I also discovered the term "White Elephant" (https://www.investopedia.com/terms/w/whiteelephant.asp#:~:text=A%20white%20elephant%20is%20a,elephants%20to%20the%20reigning%20monarch.)
 
 So anyways I am still not sure how to approach my thesis. The reason is that I don't know if I should focus on ONE "object" like the telephone booth/box and discuss it's case (introducing the idea of the thomasson and white elephant) OR if I should focus on a family of like-type objects and just name them "URBAN RELICS". If so, I am wondering which angle I should attack on my research question. Actually that is the main issue at the moment I have no research question. What do I want to resolve through this work ?
+
+Just stumbled on the term "street furniture" and the work of Edwin Heathcote. So far I need to buy his book and the one about thomassons as well. I am close to formulate something exciting but what ?
+
+Urban relics and street furniture. Should I question surveillance as being a part of modern street furniture ? Meaning should I explore the new types of street furniture. Which angle...
+
+"(...)reminders of cities that once were."
+
+defunct piece of communications infrastructure
+
+Urban relics : How street furniture shapes the reality and experience of the metropolitan environment
+
+In my thesis I shall explore urban relics through observation, interviews and documentation, highlighting concepts like the thomassons, white elephant and defunct and new street furniture to answer the question of the experience of a city more precisely How does street furniture influence our experience and reality of a place.
