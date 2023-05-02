@@ -1,5 +1,7 @@
 THESIS
 
+11.04
+
 1.
 
 Physical -> relating to things perceived through the senses as opposed to the mind; tangible or concrete. "the physical world".
@@ -89,3 +91,10 @@ https://venturebeat.com/business/mixed-reality-and-the-art-world-an-unlikely-but
 ![projo](images/projection.png)
 
 ![lab](images/teamlab.jpg)
+
+02.05 :
+
+This past weekend I have been reading over thomassons.
+Found a Reddit Page that lists them (https://www.reddit.com/r/Thomassons/). I also discovered the term "White Elephant" (https://www.investopedia.com/terms/w/whiteelephant.asp#:~:text=A%20white%20elephant%20is%20a,elephants%20to%20the%20reigning%20monarch.)
+
+So anyways I am still not sure how to approach my thesis. The reason is that I don't know if I should focus on ONE "object" like the telephone booth/box and discuss it's case (introducing the idea of the thomasson and white elephant) OR if I should focus on a family of like-type objects and just name them "URBAN RELICS". If so, I am wondering which angle I should attack on my research question. Actually that is the main issue at the moment I have no research question. What do I want to resolve through this work ?
