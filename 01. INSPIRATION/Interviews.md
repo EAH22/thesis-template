@@ -75,3 +75,27 @@ Définir la question pour la prochaine fois Bilbao plus méthode.
 Bunker en suisse ré appropriation pour des raves et datas center. Alpine mining, minage de crypto dans des anciennes mines.
 
 Fort knox.
+
+02.05
+
+Thème, raisons, méthodes question de recherche
+
+Modèles contributifs - réseau
+
+Collecte d’infos le plus
+
+Manière de discuter leur adaptabilité
+
+Mener enquête - je vais peut-être découvrir différente manière de penser l’évolution de ce mobilier urbain
+
+Trouver une manière de penser l’enquête - anticiper comment les analyser (formes, dégradations évolutions des usages, transformations en quelque chose d’inutilisable vs permutabilité).
+
+Cartographie. Manière d’analyser avec un questionnement de l’adaptation etc.
+
+Partie media design se trouve dans l’adaptabilité de ces objets partie 2 de la deuxième
+
+Contraire une analyse lus « analytique » tableau avec une colonne nom des objets - deuxième objet - lieu - date d’apparition - plus autres critères (peut être une caractéristique du mobilier urbain). Commencer a voir des familles des liens ou d’autres objets avec les memes critères, des catégories que je pourrai théoriser. Identifier ces grands types. Ca pourrait meme former les chapitres de mon memoire, des elements a discuter
+
+Je peux aussi voyager sur google street view - mélanger avec des photos où j’ai voyagé.
+
+Virtual ethnographie - enquête par observations en ligne - sauf que je vas pas observer des interactions entres des gens mais plutôt des objets
