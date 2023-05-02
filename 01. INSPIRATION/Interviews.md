@@ -92,7 +92,7 @@ Trouver une manière de penser l’enquête - anticiper comment les analyser (fo
 
 Cartographie. Manière d’analyser avec un questionnement de l’adaptation etc.
 
-Partie media design se trouve dans l’adaptabilité de ces objets partie 2 de la deuxième
+Partie media design se trouve dans l’adaptabilité de ces objets partie 2 de la deuxième partie (on passe d'un phone booth à une borne wifi) et aussi dans la troisième partie des "nouveaux" street furniture qui sont des caméras et des antennes 5G par exemple qui sont des objets technologiques faisant partie intégrante du monde du Média Design.
 
 Contraire une analyse lus « analytique » tableau avec une colonne nom des objets - deuxième objet - lieu - date d’apparition - plus autres critères (peut être une caractéristique du mobilier urbain). Commencer a voir des familles des liens ou d’autres objets avec les memes critères, des catégories que je pourrai théoriser. Identifier ces grands types. Ca pourrait meme former les chapitres de mon memoire, des elements a discuter
 
