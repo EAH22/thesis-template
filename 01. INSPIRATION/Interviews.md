@@ -121,7 +121,7 @@ Il y a peut-être une dimension de street art a amené (mapping ou réappropriat
 Réf : Mapping Cartographie - Space Invaders
 
 Hanieh : Port de Neuch mat déplacé.
-Amory : Politique urbaine qui reformate les objets (pique anti skate - anti sdf).
+Amaury : Politique urbaine qui reformate les objets (pique anti skate - anti sdf).
 
 Litterature :
 
