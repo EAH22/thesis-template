@@ -99,3 +99,36 @@ Contraire une analyse lus « analytique » tableau avec une colonne nom des ob
 Je peux aussi voyager sur google street view - mélanger avec des photos où j’ai voyagé.
 
 Virtual ethnographie - enquête par observations en ligne - sauf que je vas pas observer des interactions entres des gens mais plutôt des objets
+
+04.05 FEEDBACK ON PRESENTATION
+
+Nicolas Nova :
+
+look for other sets of columns (criteria) for the observation board, specially criterias around the topic of the "shift of purpose" (IIIrd part). Reading about urban furniture obsolescence to find other criterias as well. criterias about repurpose and other theory or urban concepts.
+
+Also look for other patterns beyond the "factual" other shifts, or patterns that will allow me to build the structure of my thesis. Also expanding it on the column part with criterias.
+
+Joel Vacheron :
+
+Quel type de ruine ? un objet ou plus (j'ai répondu que si je trouve un objet qui mérite d'être approffondis comme la cabine téléphonique oui mais sinon je trouverai plus intéressant d'en obsever pleins différents et de trouver des pattern dans la diversité des objets observés).
+
+5G Palm tree -> obsolescence introduite ? Il y a quelque chose d'intéressant en terme de Design car l'image du palmier avec des antennes 5G "dissimulées" produit un effet de "relique du future" déjà obsolète.
+
+Les 2 :
+
+Il y a peut-être une dimension de street art a amené (mapping ou réappropriation du mobilier urbain -> tricot contre lampadaires)
+
+Réf : Mapping Cartographie - Space Invaders
+
+Hanieh : Port de Neuch mat déplacé.
+Amory : Politique urbaine qui reformate les objets (pique anti skate - anti sdf).
+
+Litterature :
+
+Obsolescence des Ruines, par Bruce Begout
+
+Learning from Las Vegas (même démarche que moi d'observer un environnement construit).
+
+Enseigne Lumineuse, par Philippe Artier
+
+Phone Booth, par Ariana Kelly
