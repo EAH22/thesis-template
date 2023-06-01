@@ -1,6 +1,6 @@
 05.05
 
-So I'm a lil high and I'm watching my ppt and on the fourht slide, the one showing images of street funiture, there is this pic of three men at payphones and I'm thinking "there's no chance something like that would happen today, like seriously, three persons having conversation litteraly inches from each other. Plus there's a lady listiening, might be with the dude on the right.
+So I'm watching my ppt and on the fourht slide, the one showing images of street funiture, there is this pic of three men at payphones and I'm thinking "there's no chance something like that would happen today, like seriously, three persons having conversation litteraly inches from each other. Plus there's a lady listiening, might be with the dude on the right.
 
 I always thought of phone boxes and payphones as intimate spaces offering a shelter from the dynamism of the city. However, my very first thought was "that's not intimate at all !". Come on now ! I think it would be interesting to explore this dynamic as well though.
 
